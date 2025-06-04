@@ -1,1 +1,2 @@
 # Iliyas
+I'm proficient in Python, SQL, HTML, CSS, Amazon AWS and Cloud Computing, and I enjoy learning new technologies. I performed well in school, earning good marks in Btech. I'm seeking a job where I can utilize my skills and develop my career. I'm a creative problem-solver and a continuous learner with Time management & problem-solving skills. Through-out my academic journey i have mastered some valuable skills like Python, SQL, Html and CSS, Machine learning Large language models and Neural networks and I like to keep on learning new technologies.
